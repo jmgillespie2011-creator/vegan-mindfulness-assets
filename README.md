@@ -1,0 +1,1 @@
+# vegan-mindfulness-assets
